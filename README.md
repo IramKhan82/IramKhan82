@@ -1,11 +1,11 @@
 # 💫 Hi 👋, I'm Iram khan
-**A passionate AI Enthusiast || Frontend Developer**
+**A passionate a AI Enthusiast and Learner**
 
 Email Me 👉 ✉️ **iramashfaqkhan@gmail** For Collaboration/Project or Anything Else. 😊😊
 
 - 🌱 **I’m currently learning:** DSA, DBMS, Data science and data analytics (Power BI)
 - 🤔 **I’m looking for help with:** Studdy buddy rag
-- 💬 **Ask me about:** Collaboration,Tech Support
+- 💬 **Ask me about:** Public Speaking, Personality Development and Communication Skills.
 - 📫 **How to reach me:** iramashfaqkhan@gmail.com
 - 😄 **Pronouns:** Iram!
 - ⚡ **True Fact:** Where there is a WILL, there is a WAY!
