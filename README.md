@@ -3,7 +3,7 @@
 
 Email Me 👉 ✉️ **iramashfaqkhan@gmail** For Collaboration/Project or Anything Else. 😊😊
 
-- 🌱 **I’m currently learning:** DSA, DBMS, Data science and data analytics (Power BI)
+- 🌱 **I’m currently learning:** DSA, DBMS, Data science ,Django and data analytics (Power BI)
 - 🤔 **I’m looking for help with:** Studdy buddy rag
 - 💬 **Ask me about:** Public Speaking, Personality Development and Communication Skills.
 - 📫 **How to reach me:** iramashfaqkhan@gmail.com
